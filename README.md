@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Hala
+- 👀 I’m interested in Secuirty and Astropyhsics
+- 🌱 I’m currently learning Linux
+- ⚡ Fun fact: i have always hated IT fields but now its my Career
